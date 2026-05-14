@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for macOS automatic Filter: AI-upscaling & audio-cleanup offers the most advanced Adobe Audition for macOS filter, with AI-upscaling and audio-cleanup. Ideal for
 
 
 
